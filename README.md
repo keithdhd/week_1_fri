@@ -1,2 +1,2 @@
-# week_1_fri
+# Week 1 Friday
  
